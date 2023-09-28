@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Yaswanth-2k
 - 👀 I’m interested in latest improvements in AI
 - 🌱 I learnt python, c and working on cpp and mysql..
-- 💞️ I’m looking to collaborate on nothing ...
+- 💞️ I’m looking to collaborate on nothing phone ...
 - 📫 How to reach me Instagram yash_stoic or in linked in
 nice to meet you i guess 
 
